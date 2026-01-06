@@ -3,7 +3,7 @@ Some would say Sinners but no, the pacing of the movie was just off, especially 
 Wake Up Dead Man was everything movies used to be before Netflix took over. 
 Not to mention the depiction of religious themes hasn't been done well in Hollywood before this (I can understand an argument about Conclave here), it showed both the positives and the negatives that are rarely shown. 
 NOT TO MENTION THE CINEMETOGRAPHY. Oh my goodness. GORGEOUS. RIAN JOHNSON ATE
-Furthermore, the characters. It just felt like out of all the Knives Out films, these characters where the most thoughout. I would say making it the most complex of the films. Layers upon layers upon layers for each character.
+Furthermore, the characters. It just felt like out of all the Knives Out films, these characters where the most thoughtout. I would say making it the most complex of the films. Layers upon layers upon layers for each character.
 With the Knives Out films you just never know what to expect or you can't easily guess what is going to happen. 
 And the STAR of the show, obviously our English/Irish King, Josh O'Connor. His delivery was amazing and his character arc HELLO 
-This movie was just amazing story telling mostly through the cinemetography so thank you Rian Johnson bringing good story telling back to the film industry 
+This movie was just amazing story telling mostly through the cinemetography so thank you Rian Johnson for bringing good story telling back to the film industry 
